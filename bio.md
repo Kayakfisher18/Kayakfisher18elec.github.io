@@ -1,4 +1,4 @@
-# FISH FINDERS
+# FISHFINDERS
 
 The two main types of fishdiners are portable and fixed.  Portable fishfinders are ideal for kayaks and other small watercrafts, while fixed are ideal for larger boats with compartments to house and permanently store these electronic devices.  Fishfinders allow anglers to see a graphic representation of what is beneath their boats so they can identify fish and structure.
 
