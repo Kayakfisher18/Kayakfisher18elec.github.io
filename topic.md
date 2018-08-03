@@ -7,7 +7,7 @@ Electric reels are becoming more popular for extream deep water fishing as well 
 
 ![deep water](http://www.stuartflsportfishing.com/i/fish%202010/Kristal_Electric_Reel.jpg)  
 
-Above shows a fisherman utilizing a electric reel for deep water fishing.  
+Above shows a fisherman utilizing a electric reel for deep water fishing, and by the looks of his boats deck this is not the first fish of the day.  
 
 
 [Home](index.md)  
