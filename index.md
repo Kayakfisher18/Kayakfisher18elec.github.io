@@ -13,7 +13,11 @@ Both fishfinders and electric reels have wide price ranges from under $200 upwar
 [Fish Finders](bio.md)  
 [Electric Reels](topic.md)  
 
-(2010, August 18) Retrived from http://www.airmar.com/uploads/brochures/AIRMAR%20Transducer%20Guide%202009.pdf
+1. Airmar Technology Corporation (2010, August 18) Retrived from http://www.airmar.com/uploads/brochures/AIRMAR%20Transducer%20Guide%202009.pdf
+
+2. Statista (2018, August 1) Retrived from https://www.statista.com/statistics/825236/sports-fishing-equipment-market-value-forecast/
+
+
 
 1. Six sites meet for comprehensive anti-gang initiative conference. (2006, November/
 December). OJJDP News @ a Glance. Retrieved from http://www.ncjrs.gov
