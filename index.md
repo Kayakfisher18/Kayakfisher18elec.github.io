@@ -17,15 +17,5 @@ Both fishfinders and electric reels have wide price ranges from under $200 upwar
 
 2. Statista (2018, August 1) Retrived from https://www.statista.com/statistics/825236/sports-fishing-equipment-market-value-forecast/
 
-3. () Retrived from http://www.hookline-fishing.com/fileadmin/users/hookline/pdfs_anglais/electronic-jigging-reel-DNG-C6000i_en.pdf
+3. Hookline Equipment(2018, August 1) Retrived from http://www.hookline-fishing.com/fileadmin/users/hookline/pdfs_anglais/electronic-jigging-reel-DNG-C6000i_en.pdf
 
-1. Six sites meet for comprehensive anti-gang initiative conference. (2006, November/
-December). OJJDP News @ a Glance. Retrieved from http://www.ncjrs.gov
-/html/ojjdp/news_at_glance/216684/topstory.html
-
-2. Brody, J. E. (2007, December 11). Mental reserves keep brains agile. The New York
-Times. Retrieved from http://www.nytimes.com
-
-3. Sillick, T. J., & Schutte, N. S. (2006). Emotional intelligence and self-esteem mediate
-between perceived early parental love and adult happiness. E-Journal of Applied
-Psychology, 2(2), 38–48. Retrieved from http://ojs.lib.swin.edu.au /index.php/ejap
