@@ -1,5 +1,5 @@
 # ELECTRIC REELS  
-## 
+## kayakfisher18 (Nick)
 
 ![electric reel](http://i.ebayimg.com/00/s/NTAwWDUwMA==/z/4LYAAMXQlgtS-owV/$_3.JPG?set_id=2)  
 
